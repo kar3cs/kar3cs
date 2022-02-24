@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kar3cs
+- 🌱 I’m currently learning Cybersec 
+- 💞️ I’m looking to collaborate on any projects.
+- 📫 enquires: 
+- Email: kar3cs@gmail.com
+- Discord:!kar#2137
